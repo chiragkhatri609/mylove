@@ -1,11 +1,1 @@
 # mylove
-![07](https://github.com/user-attachments/assets/d562c73a-e040-4f9c-956b-ee196ec73f61)
-![06](https://github.com/user-attachments/assets/9012cb5c-2018-4da3-99b6-13ca337c80d7)
-![02](https://github.com/user-attachments/assets/386c60d7-3ae7-4747-8bf3-61e4432f0060)
-![01](https://github.com/user-attachments/assets/e5de85a0-588f-45ed-b979-8df4d1396595)
-![08](https://github.com/user-attachments/assets/63f7dfdc-1055-4198-b706-e943d86ddb1f)
-![10](https://github.com/user-attachments/assets/8daf1e2c-ae5d-4d5c-bcfe-33be736d2faa)
-![09](https://github.com/user-attachments/assets/c59d14aa-2e60-49ff-8fe8-f5df8b523cd9)
-![03](https://github.com/user-attachments/assets/12342cb4-ed66-4690-957f-f410fc144a09)
-![04](https://github.com/user-attachments/assets/342f064d-df9c-405e-ae62-fcdd3864c2f1)
-![05](https://github.com/user-attachments/assets/b3b35b2b-d3f8-402e-81a5-5a4ec65170e0)
